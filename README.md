@@ -8,7 +8,7 @@
 
 ### 2. 视频教程（持续更新）
 
-- [https://www.youtube.com/channel/UCRxmNhjCYQkGVbKSumcK5Wg/videos?view_as=subscriber](https://www.youtube.com/channel/UCRxmNhjCYQkGVbKSumcK5Wg/videos?view_as=subscriber)
+- [http://edu.kongyixueyuan.com/course/3](http://edu.kongyixueyuan.com/course/3)
 
 
 ### 3. 视频教程大纲
